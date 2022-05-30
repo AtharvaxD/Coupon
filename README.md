@@ -4,15 +4,15 @@
 
 **INDIA**
 
-> **Get 10% off on orders over 200k OwO.**
+> **Get 10% off on orders over 900k OwO.**
 
 **DISCORD**
 
-> **Get 2% off on all orders.**
+> **Get 4% off on all orders.**
 
 **NOTMEISOP**
 
-> **Get 30% off on orders below 80k. OwO**
+> **Get 30% off on orders below 100k. OwO**
 > **You can only use this cupon once. **
 
 **INFO**
