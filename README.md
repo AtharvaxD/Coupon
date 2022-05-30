@@ -13,7 +13,6 @@
 **NOTMEISOP**
 
 > **Get 30% off on orders below 100k. OwO**
-> **You can only use this cupon once. **
 
 **INFO**
 
